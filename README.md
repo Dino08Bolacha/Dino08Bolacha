@@ -6,4 +6,4 @@
 - 😄 Pronomes: Macho Alfa.
 - ⚡ Curiosidade: Sim.
 
-![](https://tenso.blog.br/wp-content/2015/05/academia.gif)
+![](https://tenso.blog.br/wp-content/2015/05/academia.gif)             ![](https://i.gifer.com/Xh11.gif)
