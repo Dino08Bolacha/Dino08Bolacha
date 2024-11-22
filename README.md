@@ -5,4 +5,5 @@
 - 📫 Como entrar em contato comigo. Não entre.
 - 😄 Pronomes: Macho Alfa.
 - ⚡ Curiosidade: Sim.
+
 ![](https://tenso.blog.br/wp-content/2015/05/academia.gif)
